@@ -1,5 +1,6 @@
 
-![Profile Image](https://i0.wp.com/traveladdictslife.com/wp-content/uploads/2020/04/discover-Durres-albania-venetian-tower.jpg?fit=1200%2C667&ssl=1)
+![Profile Image](![Green Teal Geometric Modern Computer Programmer Code Editor Quotes Instagram Post](https://github.com/user-attachments/assets/9ca0dc69-e673-4688-9e7e-411463529a22)
+)
 
 <!---
 ArsiHoxha/ArsiHoxha is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
