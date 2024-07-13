@@ -1,7 +1,3 @@
-# Hi, I’m ArsiHoxha
-
-- 👀 I’m interested in programming
-- 🌱 I’m currently learning JS
 
 ![Profile Image](https://i0.wp.com/traveladdictslife.com/wp-content/uploads/2020/04/discover-Durres-albania-venetian-tower.jpg?fit=1200%2C667&ssl=1)
 
