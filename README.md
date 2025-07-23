@@ -10,7 +10,7 @@
 - 🔭 I’m currently working on **ChefAI**
 
 - 🌱 I’m currently learning **AI**
-
+- HACKTHEBOX 
 - 👨‍💻 All of my projects are available at [https://www.arsihoxha.dev/](https://www.arsihoxha.dev/)
 
 - 📫 How to reach me **arsi.hoxha23@gmail.com**
